@@ -27,6 +27,13 @@
 # - ⭑𓂃 ⌗ FAV PEOPLE 𖦹 🪷
 ╰┈➤ 
 ✦ ᴋʏʟᴏ! ✦ (CLOSE BEST FRIEND)
+
 ₍⸍⸌̣ʷ̣̫⸍̣⸌₎ loona! (DAUGHTER)
+
 ✦ 𝐤𝐚𝐭 / 𝐜𝐚𝐭 ✦ (BEST FRIEND)
+
 ₍⸝⸝´• ·̫ •̥`⸝⸝₎♡ (sorry if i didn’t mention you!!) ♡
+
+#THATS ALL BUH BYEEE!
+![image](https://github.com/user-attachments/assets/e4010366-20ff-4afa-846e-aca4c88964dc)
+
